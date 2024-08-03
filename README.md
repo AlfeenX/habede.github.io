@@ -1,2 +1,1 @@
-# habede
-06/01
+eleeh gausah diliat cuma orang iseng ngoding
